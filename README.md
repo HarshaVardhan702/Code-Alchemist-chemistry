@@ -33,7 +33,7 @@ Output's:
 ![Screenshot 2025-04-18 192055](https://github.com/user-attachments/assets/86a1bbbb-317d-4c05-8623-70754c7e36d4)
 
 
-![Screenshot 2025-04-18 192055](https://github.com/user-attachments/assets/8ea37d62-476c-46b4-9481-6362cd7682dd)
+![Screenshot 2025-04-18 192255](https://github.com/user-attachments/assets/09236d7c-899e-4e54-b710-ce4c1a58c39f)
 
 
 
